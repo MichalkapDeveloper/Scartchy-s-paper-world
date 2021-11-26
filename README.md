@@ -1,1 +1,1 @@
-# Scartchy's-paper-world github repasitory
+# Scartchy's paper world github repasitory
